@@ -10,7 +10,7 @@
 
 ​		记得傲更峰在一次报社采访中透露：“记忆的秘诀就在于正确的训练方法和理解大脑记忆的规律。每个人都可以过目不忘，这不是什么难事。”
 
-![1584088039062](E:\ebook\docs\Moonwalking_With_Einstein\image\1584088039062.png)
+![1584088039062](https://github.com/oldwestenglish/ebook/blob/master/docs/Moonwalking_With_Einstein/image/1584088039062.png?raw=true)
 
 参观艺术馆的几周后，我去曼哈顿的科爱迪生总部的19层，就在联合国广场附近，观看2005年全美记忆力大赛。出于对傲更峰的崇拜，我去那里为石板杂志写篇关于天才大赛的简要报道。
 
